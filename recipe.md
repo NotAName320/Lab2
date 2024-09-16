@@ -17,4 +17,8 @@
 6. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 7. Line the bottom of a greased and floured 9x13-inch baking pan with parchment paper for easy cake removal.
 8. Pour the batter into the pan.
+9. Once the oven is finished preheating, place the pan into the oven.
+10. Bake for 60 minutes, or until you get bored, whichever comes sooner.
+11. Once done, pull out of the oven and rest for 10 minutes.
+12. Cut into slices and enjoy!
 
